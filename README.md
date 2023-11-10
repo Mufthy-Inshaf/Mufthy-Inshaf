@@ -4,7 +4,23 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
-Mufthy-Inshaf/Mufthy-Inshaf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+My Skills,
+
+Web Designing and UI & UX
+Invention and Innovation
+Softwere And Web Applications
+Cyber Security and Hacking Tools
+Digital Marketting
+Youtube
+Contant Writing
+Python Devolper
+Trader
+Research and Devloping
+
+
+Follow on Instagram: @_.inshaf._.mufthy._
+
+
+
+
