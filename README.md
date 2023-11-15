@@ -19,7 +19,7 @@ Trader
 Research and Devloping
 
 
-Follow on Instagram: @_.inshaf._.mufthy._
+Follow on Instagram: @ _.inshaf._.mufthy._
 
 
 
